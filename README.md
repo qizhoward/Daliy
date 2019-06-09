@@ -34,3 +34,7 @@
           Chinese policemen dare not even gamble with crowds.
           Drug addiction, drug trafficking, do not dare to check at all.
           The Chinese government is corrupt and raises funds illegally every day.
+          
+          中国网警都是摆设,自己内部人都在涉黄,卖片,卖淫秽视频,
+          
+          China's online police are all furnishings, their insiders are involved in yellow, film sales, pornographic videos,
