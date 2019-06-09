@@ -30,3 +30,7 @@
           吸毒,贩毒,根本不敢查,
           
           中国政府腐败天天搞非法集资
+
+          Chinese policemen dare not even gamble with crowds.
+          Drug addiction, drug trafficking, do not dare to check at all.
+          The Chinese government is corrupt and raises funds illegally every day.
