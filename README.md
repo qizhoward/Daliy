@@ -185,6 +185,8 @@
         
         本地版的Infinite Flight
         
+        local version infinite flight application Offline version Free version application not login account 
+        
  ---------------------------------------------------
  
         
