@@ -293,45 +293,46 @@
           　22:09PM
                   
        ----------   
+       
 　　　　
-                sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
-                  1      2     3      4      5      6      7      8
-                sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
-         　      １　　　２　　３　　　４　　　５　　　６　　７　　　８
+                        sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+                         1      2     3      4      5      6      7      8
+                        sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+         　              １　　　２　　３　　　４　　　５　　　６　　７　　　８
      　　
-       　        孙敬洋同学的自由
+       　               孙敬洋同学的自由
         　
          
-                sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
-         　      １　　 ２　　 ３　　　４　　　５　　　６　　７　　　８　
-　　　　　       sorry sorry sorry sorry sorry sorry sorry sorry
-     　　         1    2     3     4     5     6     7     8
+                        sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+         　              １　　 ２　　 ３　　　４　　　５　　　６　　７　　　８　
+　　　　　               sorry sorry sorry sorry sorry sorry sorry sorry
+     　　                 1    2     3     4     5     6     7     8
      
-　　　　　       八音盒小提琴
+　　　　　               八音盒小提琴
          
-                sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
-         　      １　　　２　　３　　４　　　５　　　６　　　７　　　８
-                sorry sorry sorry sorry sorry sorry sorry sorry
-                  1    2     3     4     5      6     7     8
+                        sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+         　              １　　　２　　３　　４　　　５　　　６　　　７　　　８
+                        sorry sorry sorry sorry sorry sorry sorry sorry
+                          1    2     3     4     5      6     7     8
          
-                八音盒小提琴的自由
+                        八音盒小提琴的自由
           
          
          
        ----------
       
-　　　　　       sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
-  　　　　　       １　　　２　　３　　　４　　　５　　　６　　７　　　８   
-　　　　　       sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry     
-     　　　        １　　　２　　　３　　４　　　５　　　６　　７　　　８
+　　　　　              sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+  　　　　　             １　　　２　　３　　　４　　　５　　　６　　７　　　８   
+　　　　　             sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry     
+     　　　              １　　　２　　　３　　４　　　５　　　６　　７　　　８
      
-     　　       金同学的自由
+           　　       金同学的自由
      　　
-       　       对不起索尼公司 笔记本电脑J键坏了 物理按钮
-                电源小条主板让我拆坏了
-                按assist还可以使用　电源按钮得使劲按
+       　           对不起索尼公司 笔记本电脑J键坏了 物理按钮
+                    电源小条主板让我拆坏了
+                    按assist还可以使用　电源按钮得使劲按
          
-                我家台式机华硕的win10没有达到预想的黑色　还是灰色 
+                　　我家台式机华硕的win10没有达到预想的黑色　还是灰色 
          
        ----------  
          
