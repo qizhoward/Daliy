@@ -259,7 +259,89 @@
               
            将每一个人都困死在钢铁之躯里   
               
+--------------            
+         
+         sorry　sorry　sorry　sorry　
+         　１　　　２　　３　　　４
+　　　　　sorry　sorry　sorry　sorry  sorry　sorry　sorry　sorry       　　　 
+          １　　　２　　　３　　　４　　５　　　６　　　７　　　８
+         
+         我的苹果手机坏了
+       　自由
+         
+         苹果手机是怎么显示图像的不知道
+         螺丝顺序我好像记错了,安装回去安装错了
+         
+         华硕台式机 我没找到显示方法
+        
+        　 哆啦A梦　１个　坏掉了仍了
+         　暴力熊　2个
+           
+           有两个暴力熊坏掉了
+        
+        　 我有　３个　暴力熊
+        　 此处应该再来３个暴力熊
+          　
+           微软电话激活那时候我在厕所,而且我也不能接,家庭编程,那是最后一通电话
+       
+         　我姥姥用苹果手机吗
+          　诺基亚更好
+         
+         
+           　余鹏
+        　　2019.08.17
+          　22:09PM
           
+           　余鹏
+          　2019.08.17 
+          　22:09PM
+                  
+       ----------   
+　　　　
+         sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+           1      2     3      4      5      6      7      8
+         sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+         　１　　　２　　３　　　４　　　５　　　６　　７　　　８
+     　　
+       　孙敬洋同学的自由
+        　
+         
+         sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+         　１　　 ２　　 ３　　　４　　　５　　　６　　７　　　８　
+　　　　　sorry sorry sorry sorry sorry sorry sorry sorry
+     　　   1    2     3     4     5     6     7     8
+     
+　　　　　八音盒小提琴
+         
+         sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+         　１　　　２　　３　　４　　　５　　　６　　　７　　　８
+         sorry sorry sorry sorry sorry sorry sorry sorry
+           1    2     3     4     5      6     7     8
+         
+         八音盒小提琴的自由
           
-          
-          
+         
+         
+       ----------
+      
+　　　　　sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry
+  　　　　　１　　　２　　３　　　４　　　５　　　６　　７　　　８   
+　　　　　sorry　sorry　sorry　sorry　sorry　sorry　sorry　sorry     
+     　　　１　　　２　　　３　　４　　　５　　　６　　７　　　８
+     
+     　　金同学的自由
+     　　
+       　对不起索尼公司 笔记本电脑J键坏了 物理按钮
+         电源小条主板让我拆坏了
+         按assist还可以使用　电源按钮得使劲按
+         
+         我家台式机华硕的win10没有达到预想的黑色　还是灰色 
+         
+         
+         
+       ----------  
+         
+      
+
+
+
