@@ -128,10 +128,10 @@ Computer Xbox </br>
 
 －－－－－－－－－
 
-ゲームは高すぎます
+ゲームは高すぎます</br>
 
-bilibili
-哔哩哔哩
+bilibili</br>
+哔哩哔哩</br>
 
 ![image](https://github.com/qizhoward/Daliy/blob/master/客服部门22.PNG)
 
