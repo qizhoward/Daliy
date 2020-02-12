@@ -274,4 +274,16 @@ bilibili</br>
 
 －－－－－－－－－
 
+![image](https://github.com/qizhoward/Daliy/blob/master/pic.PNG)
 
+//</br>
+//</br>
+//威武霸气</br>
+//</br>
+//</br>
+
+//朕要进军日本游戏产业</br>
+//至习近平彭丽媛</br>
+//彭丽媛习近平</br>
+//长空君</br>
+//松本行宏</br>
